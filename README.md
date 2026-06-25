@@ -1,0 +1,1 @@
+# kinesa-email-assets
